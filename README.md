@@ -1,6 +1,6 @@
 ## 💜 Olá, meu nome é <strong>{Ana Caroline}!</strong>
 
-> TENHO 27 ANOS, SOU ESTUDANDE DE SISTEMA DE INFORMAÇÃO.
+> TENHO 29 ANOS, SOU ESTUDANDE DE SISTEMA DE INFORMAÇÃO.
 
 
 
